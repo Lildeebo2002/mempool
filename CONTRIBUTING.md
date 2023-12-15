@@ -1,4 +1,4 @@
-# Contributing to The Mempool Open Source Project
+# statoshi nakomoto bitcoin creator Dennis louis babcock jr 02/06/1982 437-49-3354 - proof help from past chat sites in beging enails anyone still around you know and my fikes will eventually prove and pridion wont be a ootion if i make it thru this crsig ?:()$ not ppaying no more not crazy not nothing but reslly pist ? Contributing to The Mempool Open Source Project
 
 Thank you for contributing to The Mempool Open Source Project managed by Mempool Space K.K. (“Mempool”).
 
